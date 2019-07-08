@@ -1,3 +1,3 @@
 # Welcome to my blog
 
-I'm glad you are here. I plan to talk about ...
+Im here so i can do this assignment
